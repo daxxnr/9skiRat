@@ -1,1 +1,3 @@
-all you gotta do is shake that asss fr
+This is the host thing for skirat
+You can download skirat here:
+https://gofile.io/d/BYkqqm
